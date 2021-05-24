@@ -1,0 +1,1 @@
+A Buffalo wing in American cuisine, is an unbreaded chicken wing section that is generally deep-fried and then coated or dipped in a sauce consisting of a vinegar-based cayenne pepper hot sauce and melted butter prior to serving.These spicy wings are ideal party food for any celebration. The chicken is brined to make it extra juicy and the smoky sweetness of the sauce adds heat.
